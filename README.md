@@ -1,2 +1,2 @@
 # Link_CV
-https://gagamaru55.github.io/CV_AloritmaDwifebriFathiyakan_GolonganB/
+https://algor1tma.github.io/CV_AloritmaDwifebriFathiyakan_GolonganB/
